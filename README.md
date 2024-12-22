@@ -23,7 +23,10 @@ Join the revolution! Connect on Telegram for details:
 
 
 
-![Screenshot (7)](https://github.com/user-attachments/assets/10191c29-15c1-405f-b614-c3ddd37a1c45)
+![photo_2024-12-22_21-03-24](https://github.com/user-attachments/assets/552c898e-d7f7-45bc-ab9f-c7c21405eec0)
+
+
+
 
 
 Group: https://t.me/flasherbond00007
